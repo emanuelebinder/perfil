@@ -1,6 +1,6 @@
 # Bem vindo ao meu vlog ! 🍒
 
-meu nome é emanuele mas sempre escrevem emanuele com dois L.
+meu nome é Emanuele mas sempre escrevem Emanuele com dois L.
 Tenho 16 anos mas sinto vontade de ter 6 de volta 
 Tenho 2 irmâos bem chatos mas eu adoro eles 💙
 Amo meus pais, meu pai é careca 👨‍🦲. E minha mãe tem cabelo
